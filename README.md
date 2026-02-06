@@ -84,8 +84,8 @@ Moodlakatte Institute of Technology & Management, Kundapura.
 
 ## 📫 Contact Me
 
-📧 Gmail: yourgmail@gmail.com  
-💼 LinkedIn: https://linkedin.com/in/yourprofile  
+📧 Gmail: punithpunithnm@gmail.com  
+💼 LinkedIn: https://www.linkedin.com/in/punith-upaveer-472185305
 💻 GitHub:  https://github.com/Punith26-coder
 
 ---
